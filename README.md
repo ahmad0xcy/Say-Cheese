@@ -9,7 +9,10 @@ All I saaaaid was:
 **The road to the flag is: `reports/diagnostics`**
 
 and i takled about http://sample-site/
-
 That's literally ALL I SAIDDD!!!
+
+Ohhh, waitttt... I forgotttt!!!
+I might've mentioned  /control-centerّ              toooo...
 sorry sorry 
+
 I don't knoooow why the manager is alwaaaays so angryyyy 😭
