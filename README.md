@@ -8,6 +8,8 @@ All I saaaaid was:
 
 **The road to the flag is: `reports/diagnostics`**
 
-That's literally ALL I SAIDDD!!!
+and i takled about http://sample-site/
 
+That's literally ALL I SAIDDD!!!
+sorry sorry 
 I don't knoooow why the manager is alwaaaays so angryyyy 😭
